@@ -42,3 +42,36 @@ Voice recording practice --> https://voca.ro/1kWh5kvzeg2r
 
 ![image](https://user-images.githubusercontent.com/45472379/113074952-450da000-9189-11eb-8c62-c472b9f98edb.png)
 
+### Saturday 04, Apr 2021 [Grammar practice]
+
+**Complete the sentences using can or can’t:**
+- Can he wear tees in the winter? 
+- They can wear sandals in the spring. 
+- I can wear t-shirts in the summer. 
+- We can't wear sneakers in the fall. 
+- You can't wear a wooly hat in the summer.
+
+**Complete the sentences with the correct form of 
+the verb in brackets:**
+- I enjoy running (run) in the morning.
+- Do you like to work (work) late?
+- He wants to make (make) the report for us.
+- We don’t enjoy driving (drive) to new places.
+- They love playing (play) the guitar.
+
+**Exercises:**
+- He doesn’t take a shower early in the morning.
+- Do they have lunch at the cafeteria?
+- She has her email in her phone.
+- I ___________ up at 6:00 am.
+- We _________ to work by bus.
+
+**Words to be careful with their pronunciation**
+- Foreign (faw-ruhn)
+- Cafeteria (ka-fuh-tee-ree-uh
+
+#### Unknow words or phrases
+- Be crazy about
+- Have dinner (Cenar)
+- Have lunch (almorzar)
+
