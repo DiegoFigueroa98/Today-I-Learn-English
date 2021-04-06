@@ -44,7 +44,8 @@ Voice recording practice --> https://voca.ro/1kWh5kvzeg2r
 
 ### Saturday 04, Apr 2021 [Grammar practice]
 
-**Complete the sentences using can or can’t:**
+**Complete the sentences using can or can’t:**  
+
 - Can he wear tees in the winter? 
 - They can wear sandals in the spring. 
 - I can wear t-shirts in the summer. 
@@ -52,21 +53,24 @@ Voice recording practice --> https://voca.ro/1kWh5kvzeg2r
 - You can't wear a wooly hat in the summer.
 
 **Complete the sentences with the correct form of 
-the verb in brackets:**
+the verb in brackets:**  
+
 - I enjoy running (run) in the morning.
 - Do you like to work (work) late?
 - He wants to make (make) the report for us.
 - We don’t enjoy driving (drive) to new places.
 - They love playing (play) the guitar.
 
-**Exercises:**
+**Exercises:**  
+
 - He doesn’t take a shower early in the morning.
 - Do they have lunch at the cafeteria?
 - She has her email in her phone.
 - I wake up at 6:00 am.
 - We go to work by bus.
 
-**Exercises:**
+**Exercises:**  
+
 - Where is the school located? (Place)
 - Why do you study English? (Reason)
 - What do you do on Fridays? (Activity)
@@ -83,63 +87,70 @@ beautiful and the water was warm.**
 - **Where were they?**  
  They were in the beach.  
  
-- **Why were they happy?**
+- **Why were they happy?**  
  They were happy because they weren't at work.  
  
-- **What was the weather like?**
+- **What was the weather like?**  
  The weather was beautiful and the water was warm  
  
- ### Monday 05, Apr 2021 [Grammar practice]
+ ### Monday 05, Apr 2021 [Grammar practice]  
 
 **Last month at the university I was the teacher of a history course. The 
 contents were really interesting. The students were ten girls and 8 
 boys. They were between 19-23 years old. The classes were very 
-nice.**
+nice.**  
 
-- **What was the course?**
+- **What was the course?**  
 It was a history course.  
 
-- **How old were the students?**
+- **How old were the students?**  
 They were between 19-23 years old.  
 
-- **What were the classes like?**
-They were very nice
+- **What were the classes like?**  
+They were very nice  
 
-**Organize the sentences:**
-- **we / Last night / cooked / dinner.**
+**Organize the sentences:**  
+
+- **we / Last night / cooked / dinner.**  
+
 Last night we cooked dinner  
 
-- **weekend. / I / the / last / cleaned / house**
+- **weekend. / I / the / last / cleaned / house**  
+
 Last weekend I cleaned the house  
 
-- **like / Did / food? / you / the**
-Did you like the food?
+- **like / Did / food? / you / the**  
 
-- **pictures / The / beautiful. / looked**
-The pictures looked beautiful
+Did you like the food?  
 
-- **house / moved / to / new / last / our / month. / We**
-Last month we moved to our new house
+- **pictures / The / beautiful. / looked**  
 
- ### Tuesday 06, Apr 2021 [Grammar practice]
+The pictures looked beautiful  
+
+- **house / moved / to / new / last / our / month. / We**  
+
+Last month we moved to our new house  
+
+ ### Tuesday 06, Apr 2021 [Grammar practice]  
 
 **Complete the following sentences with the 
-verbs in the box:**
-I lost a beautiful dog when I was little.
-She  her father was coming back.
-They learned English in high school.
-My mom lost her keys in the meeting.
-He met her at the office.
+verbs in the box:**  
+
+I lost a beautiful dog when I was little.  
+She  her father was coming back.  
+They learned English in high school.  
+My mom lost her keys in the meeting.  
+He met her at the office.  
 
 **Complete the sentences using the future 
-form of the verb in brackets:**  
+form of the verb in brackets:**   
 
 If I can, I will stay (stay) in Germany for one or two 
-years.
-I will work (work) in my hometown.
-She will apply (apply) to one of those jobs.
-He will live (live) with his parents for one year.
-He will start (start) the master’s as soon as possible.
+years.  
+I will work (work) in my hometown.  
+She will apply (apply) to one of those jobs.  
+He will live (live) with his parents for one year.  
+He will start (start) the master’s as soon as possible.  
 
 **Exercises:**  
 
