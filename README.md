@@ -84,7 +84,64 @@ Answer the questions:
 **Why were they happy?**
  They were happy because they weren't at work.
 **What was the weather like?**
- The weather was beautiful and the water was warm
+ The weather was beautiful and the water was warm  
+ 
+ ### Monday 05, Apr 2021 [Grammar practice]
+
+**Last month at the university I was the teacher of a history course. The 
+contents were really interesting. The students were ten girls and 8 
+boys. They were between 19-23 years old. The classes were very 
+nice.**
+
+- **What was the course?**
+It was a history course.
+- **How old were the students?**
+They were between 19-23 years old.
+- **What were the classes like?**
+They were very nice
+
+**Organize the sentences:**
+**- we / Last night / cooked / dinner.**
+
+**- weekend. / I / the / last / cleaned / house**
+**- like / Did / food? / you / the**
+**- pictures / The / beautiful. / looked**
+**- house / moved / to / new / last / our / month. / We**
+
+ ### Tuesday 06, Apr 2021 [Grammar practice]
+
+**Complete the following sentences with the 
+verbs in the box:**
+I lost a beautiful dog when I was little.
+She  her father was coming back.
+They learned English in high school.
+My mom lost her keys in the meeting.
+He met her at the office.
+
+**Complete the sentences using the future 
+form of the verb in brackets:**  
+
+If I can, I will stay (stay) in Germany for one or two 
+years.
+I will work (work) in my hometown.
+She will apply (apply) to one of those jobs.
+He will live (live) with his parents for one year.
+He will start (start) the master’s as soon as possible.
+
+**Exercises:**  
+
+Yesterday was (be) a very busy day. I woke up 
+(wake up) in the morning and made (make) breakfast. 
+Then, I went (go) to the gym for my spinning class. 
+After that, I went (go) back home and took (take) 
+a shower. I soon left (leave) to my office. When I 
+arrived (arrive) I saw (see) my boss coming. 
+She was (be) angry because she lost (lose) her 
+cell phone. I bought (buy) her a cup of coffee and we 
+talked (talk) about it. 
+
+
+
 
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
@@ -94,6 +151,21 @@ Answer the questions:
 - Tall (tôl)
 - Brunnete (bro͞o-net)
 - Talkative (taa-kuh-tuhv)
+- Student (stoo-dnt)
+- Between (buh-tween)
+- Death (deth)
+- Recycle (ruh-sai-kl)
+- Studied (stuh-deed)
+- Bought (baat)
+- Debut (dei-byoo)
+- Band (be-and (spanish))
+- Pysician (fuh-zi-shn)
+- Chemist (keh-muhst)
+- Theory (thee-ur-ee)
+- Techniques (tek-neeks)
+- Isolating (ai-su-lei-tuhng)
+- Isotopes (ai-suh-towps)
+- Comedian (kuh·mee·dee·uhn)
 
 #### Unknow words or phrases
 - Be crazy about
@@ -103,4 +175,11 @@ Answer the questions:
 - Who do you work with?
 - She almost always cooks at home.
 - Outgoing (Extrovertido)
+- What were the classes like? (Cómo estuvieron las clases?)
+- The day before yesterday (Antier)
+- Travel abroad (Viajar al extranjero)
+- I soon left to my office (Me fui pronto a mi oficina)
+- Stunning (impresionante)
+- He let his audience down (Permitió que la audiencia bajara)
+- Physician (
 
