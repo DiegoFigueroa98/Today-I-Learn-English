@@ -76,14 +76,17 @@ the verb in brackets:**
 **Yesterday was a great day. I was with my family at the beach. My 
 brother and I were happy because we weren’t at work. My parents 
 were really excited because we were at the beach. The weather was 
-beautiful and the water was warm. 
-Answer the questions:  
+beautiful and the water was warm.**  
 
-**Where were they?**
- They were in the beach.
-**Why were they happy?**
- They were happy because they weren't at work.
-**What was the weather like?**
+**Answer the questions:**  
+
+- **Where were they?**  
+ They were in the beach.  
+ 
+- **Why were they happy?**
+ They were happy because they weren't at work.  
+ 
+- **What was the weather like?**
  The weather was beautiful and the water was warm  
  
  ### Monday 05, Apr 2021 [Grammar practice]
@@ -94,19 +97,29 @@ boys. They were between 19-23 years old. The classes were very
 nice.**
 
 - **What was the course?**
-It was a history course.
+It was a history course.  
+
 - **How old were the students?**
-They were between 19-23 years old.
+They were between 19-23 years old.  
+
 - **What were the classes like?**
 They were very nice
 
 **Organize the sentences:**
-**- we / Last night / cooked / dinner.**
+- **we / Last night / cooked / dinner.**
+Last night we cooked dinner  
 
-**- weekend. / I / the / last / cleaned / house**
-**- like / Did / food? / you / the**
-**- pictures / The / beautiful. / looked**
-**- house / moved / to / new / last / our / month. / We**
+- **weekend. / I / the / last / cleaned / house**
+Last weekend I cleaned the house  
+
+- **like / Did / food? / you / the**
+Did you like the food?
+
+- **pictures / The / beautiful. / looked**
+The pictures looked beautiful
+
+- **house / moved / to / new / last / our / month. / We**
+Last month we moved to our new house
 
  ### Tuesday 06, Apr 2021 [Grammar practice]
 
@@ -139,8 +152,6 @@ arrived (arrive) I saw (see) my boss coming.
 She was (be) angry because she lost (lose) her 
 cell phone. I bought (buy) her a cup of coffee and we 
 talked (talk) about it. 
-
-
 
 
 **Words to be careful with their pronunciation**
