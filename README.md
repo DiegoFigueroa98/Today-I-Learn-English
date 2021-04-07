@@ -167,7 +167,7 @@ talked (talk) about it.
 
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
-- Cafeteria (ka-fuh-tee-ree-uh
+- Cafeteria (ka-fuh-tee-ree-uh)
 - Fluor (flaw-ur)
 - Study (stuh-dee)
 - Tall (tôl)
@@ -188,6 +188,8 @@ talked (talk) about it.
 - Isolating (ai-su-lei-tuhng)
 - Isotopes (ai-suh-towps)
 - Comedian (kuh·mee·dee·uhn)
+- Clothes (klowthz) (like close)
+- Clothing (klow-thuhng)
 
 #### Unknow words or phrases
 - Be crazy about
@@ -203,5 +205,4 @@ talked (talk) about it.
 - I soon left to my office (Me fui pronto a mi oficina)
 - Stunning (impresionante)
 - He let his audience down (Permitió que la audiencia bajara)
-- Physician (
 
