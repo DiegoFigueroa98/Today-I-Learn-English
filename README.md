@@ -164,6 +164,25 @@ She was (be) angry because she lost (lose) her
 cell phone. I bought (buy) her a cup of coffee and we 
 talked (talk) about it. 
 
+ ### Wednesday 07, Apr 2021 [Grammar: Can and can´t]
+ 
+ ![image](https://user-images.githubusercontent.com/45472379/113951661-96e1a600-97d9-11eb-858c-58f5c3622d2a.png)  
+
+Voice recording practice --> https://voca.ro/1nK08vEI08pB  
+
+**If you are talking about seasons and clothes you can use can and can’t. Let’s look at some examples:**
+
+- I can wear t-shirts in the summer.  
+- I can’t wear a sweater in the summer.  
+- Can I wear a sweater in the summer?  
+
+**Now let’s practice with some exercises:  **
+
+- Can he wear tees in the winter?  
+- They can't wear sandals in the spring.  
+- I can wear t-shirts in the summer.  
+- We can wear sneakers in the fall.  
+- You can't wear a wooly hat in the summer.  
 
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
@@ -190,6 +209,8 @@ talked (talk) about it.
 - Comedian (kuh·mee·dee·uhn)
 - Clothes (klowthz) (like close)
 - Clothing (klow-thuhng)
+- Diary (dai-ur-ee)
+- Button (buh-tn)
 
 #### Unknow words or phrases
 - Be crazy about
