@@ -168,7 +168,18 @@ talked (talk) about it.
  
  ![image](https://user-images.githubusercontent.com/45472379/113951661-96e1a600-97d9-11eb-858c-58f5c3622d2a.png)  
 
-Voice recording practice --> https://voca.ro/1nK08vEI08pB  
+Voice recording practice --> https://voca.ro/1nUqfw1vb85a
+
+![image](https://user-images.githubusercontent.com/45472379/113953459-7d425d80-97dd-11eb-9881-981265248460.png)  
+
+Voice recording practice --> https://voca.ro/1gAaMOR4Toc9  
+
+**My examples:**
+
+- I can cook vegetarian food, but I can't cook food with meat, nevertheless, I always do my best to do it correctly.  
+- I can play the piano and flute, but I can't play guitar or violin, however, I would like to learn to play them. 
+- I can't dance, but I really would like to learn it  
+
 
 **If you are talking about seasons and clothes you can use can and can’t. Let’s look at some examples:**
 
@@ -211,6 +222,7 @@ Voice recording practice --> https://voca.ro/1nK08vEI08pB
 - Clothing (klow-thuhng)
 - Diary (dai-ur-ee)
 - Button (buh-tn)
+- Nevertheless (neh·vr·thuh·les)
 
 #### Unknow words or phrases
 - Be crazy about
