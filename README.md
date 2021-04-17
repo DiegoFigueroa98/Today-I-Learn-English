@@ -195,6 +195,64 @@ Voice recording practice --> https://voca.ro/1gAaMOR4Toc9
 - We can wear sneakers in the fall.  
 - You can't wear a wooly hat in the summer.  
 
+ ### Friday 16, Apr 2021 [Grammar: Abilities]  
+ Voice recording practice -->  https://voca.ro/15GJAtfPT6Zl
+ 
+ #### Verb patterns  
+ ![image](https://user-images.githubusercontent.com/45472379/115096222-ca16ea00-9ee9-11eb-9d53-1b0105bb0160.png)  
+ 
+ Voice recording practice --> https://voca.ro/1dX8YQfk05H4  
+ 
+**List of verbs that can be followed by gerund or an infinitive**  
+
+- Like
+- Hate
+- Can’t stand
+- Start
+- Begin
+- Continue
+- Love  
+
+**Verbs that can only be followed by a gerund**  
+
+- Enjoy
+- Avoid
+- Stop
+- Keep on
+- Practice
+- Consider
+- Think about
+- Quit
+
+**Verbs that can only be followed by an infinitive**  
+
+- Want
+- Learn
+- Decide  
+
+**Let’s practice with some exercises. Complete the sentences using the correct conjugation of the verb in brackets:**  
+
+- She want to (want) play the guitar.
+- I love to (love) cook pasta.
+- We enjoy (enjoy) driving in the main road.
+- I don't like (not like) waking up early.
+- She doesn't like to (not like) study French.  
+
+**Now decide to use the infinitive (to-) or the gerund (-ing). Complete the exercise:**
+
+- I enjoy running (run) in the morning.
+- Do you like to work (work) late?
+- He wants to make (make) the report for us.
+- We don’t enjoy driving (drive) to new places.
+- They love playing (play) the guitar.
+
+**Write about your likes and dislikes:**  
+
+Hello, my name is Diego, I really love programming and listening to anime and video games OST. I dislike to eat liver with onions, I did it a few times and I hate its taste.
+
+He is Brayan, he is an extraordinary friend, I love to spend time with him, He always pays attention to me and we shares the same tastes.  
+
+
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
 - Cafeteria (ka-fuh-tee-ree-uh)
@@ -223,6 +281,7 @@ Voice recording practice --> https://voca.ro/1gAaMOR4Toc9
 - Diary (dai-ur-ee)
 - Button (buh-tn)
 - Nevertheless (neh·vr·thuh·les)
+- Patterns (pa-trnz)
 
 #### Unknow words or phrases
 - Be crazy about
@@ -238,4 +297,5 @@ Voice recording practice --> https://voca.ro/1gAaMOR4Toc9
 - I soon left to my office (Me fui pronto a mi oficina)
 - Stunning (impresionante)
 - He let his audience down (Permitió que la audiencia bajara)
+
 
