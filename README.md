@@ -282,6 +282,8 @@ He is Brayan, he is an extraordinary friend, I love to spend time with him, He a
 - Button (buh-tn)
 - Nevertheless (neh·vr·thuh·les)
 - Patterns (pa-trnz)
+- Depend (Dee-pend)
+- Depends (duh-pendz)
 
 #### Unknow words or phrases
 - Be crazy about
