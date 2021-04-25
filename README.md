@@ -299,5 +299,6 @@ He is Brayan, he is an extraordinary friend, I love to spend time with him, He a
 - I soon left to my office (Me fui pronto a mi oficina)
 - Stunning (impresionante)
 - He let his audience down (Permitió que la audiencia bajara)
+- Brunnete (Morena)
 
 
