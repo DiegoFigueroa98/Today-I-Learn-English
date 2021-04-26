@@ -267,7 +267,7 @@ These expressions can be used only with the gerund form.
 
 Voice recording practice --> https://voca.ro/1fO5D556N1k9  
 
-![image](https://user-images.githubusercontent.com/45472379/116015783-2e2f6180-a600-11eb-8eb3-e6a6db1b955d.png)  
+![image](https://user-images.githubusercontent.com/45472379/116165201-fb00d700-a6c0-11eb-840a-aa75a267cde0.png)  
 
 **Read the sentences and complete the exercise:**  
 
@@ -288,7 +288,15 @@ Voice recording practice --> https://voca.ro/1fO5D556N1k9
 #### Routines   
 Voice recording practice --> https://voca.ro/18tk4RcvEBDy  
 
-Voice recording practice --> https://voca.ro/112cDCv5K6KL
+![image](https://user-images.githubusercontent.com/45472379/116163804-11f1fa00-a6be-11eb-8e82-30bd5130275b.png)  
+![image](https://user-images.githubusercontent.com/45472379/116163907-4cf42d80-a6be-11eb-9aa7-a29c20f5945c.png)  
+![image](https://user-images.githubusercontent.com/45472379/116163928-59788600-a6be-11eb-8388-07dcfa5504e9.png)  
+![image](https://user-images.githubusercontent.com/45472379/116163942-6301ee00-a6be-11eb-8c32-8ad88d1f88ae.png)  
+![image](https://user-images.githubusercontent.com/45472379/116163963-6dbc8300-a6be-11eb-8449-941f8afb8f83.png)  
+
+Voice recording practice --> https://voca.ro/112cDCv5K6KL  
+![image](https://user-images.githubusercontent.com/45472379/116164477-5af67e00-a6bf-11eb-9e2b-c778b3adc17b.png)  
+
 
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
