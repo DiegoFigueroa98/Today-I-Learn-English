@@ -276,8 +276,14 @@ Voice recording practice --> https://voca.ro/1fO5D556N1k9
 - They don’t have a laptop.
 - Does he have a pet?
 - It has wheels.
-- We don’t have bikes.
+- We don’t have bikes.  
 
+#### Simple present
+- It doesn't have wheels.
+- Do we have bikes?
+- They have pens.
+- Do you have a phone?
+- I have a pet.
 
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
