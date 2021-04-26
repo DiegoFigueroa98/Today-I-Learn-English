@@ -285,6 +285,11 @@ Voice recording practice --> https://voca.ro/1fO5D556N1k9
 - Do you have a phone?
 - I have a pet.
 
+#### Routines   
+Voice recording practice --> https://voca.ro/18tk4RcvEBDy  
+
+Voice recording practice --> https://voca.ro/112cDCv5K6KL
+
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
 - Cafeteria (ka-fuh-tee-ree-uh)
