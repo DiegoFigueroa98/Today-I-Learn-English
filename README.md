@@ -252,6 +252,32 @@ Hello, my name is Diego, I really love programming and listening to anime and vi
 
 He is Brayan, he is an extraordinary friend, I love to spend time with him, He always pays attention to me and we shares the same tastes.  
 
+ ### Sunday 25, Apr 2021 [Grammar: Useful expressions]  
+These expressions can be used only with the gerund form.
+- Love
+- Adore
+- Be crazy about  
+
+**My own examples**  
+- I really love resolving katas using JavaScript.
+- I adore riding a bike with my friends.
+- I'm quite crazy about being part of a developer team.  
+
+#### Actions that people perform  
+
+Voice recording practice --> https://voca.ro/1fO5D556N1k9  
+
+![image](https://user-images.githubusercontent.com/45472379/116015783-2e2f6180-a600-11eb-8eb3-e6a6db1b955d.png)  
+
+**Read the sentences and complete the exercise:**  
+
+- He doesn’t have a pen.
+- She has a car.
+- They don’t have a laptop.
+- Does he have a pet?
+- It has wheels.
+- We don’t have bikes.
+
 
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
@@ -284,6 +310,7 @@ He is Brayan, he is an extraordinary friend, I love to spend time with him, He a
 - Patterns (pa-trnz)
 - Depend (Dee-pend)
 - Depends (duh-pendz)
+- Gerund (jeh-ruhnd)
 
 #### Unknow words or phrases
 - Be crazy about
