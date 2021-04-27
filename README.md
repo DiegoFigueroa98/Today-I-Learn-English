@@ -368,8 +368,8 @@ I wake up at 8:00 am, then I get up at 8:20 am. At 9:00 am I prepare breakfast, 
 - Preview (pree-vyoo)
 - Edit (eh-duth)
 - Editing (eh-duh-tuhng)
-- Schedule (skeh·jool)
-- Rarely (rehr·lee)
+- Schedule (skeh-jool)
+- Rarely (rehr-lee)
 
 #### Unknow words or phrases
 - Be crazy about
