@@ -331,7 +331,9 @@ They don't have lunch at the cafeteria
 We go to work by bus    
 
 **Task: Create your schedule and someone else’s schedule.**
-I wake up at 8:00 am, then I get up at 8:20 am. At 9:00 am I prepare breakfast, after that I do chores until 11:00 am. At 1:00 pm I prepare lunch for my family and me. At 3:00 pm I learn English using Platzi platform. At 5:00 pm I rarely do exercise in my room, I really want to make it a habit. At 9:00 pm I start to play Smite game with my friend of Nuevo Leon, Mexico, and finally I go to bed at 1:00 am.
+I wake up at 8:00 am, then I get up at 8:20 am. At 9:00 am I prepare breakfast, after that I do chores until 11:00 am. At 1:00 pm I prepare lunch for my family and me. At 3:00 pm I learn English using Platzi platform. At 5:00 pm I rarely do exercise in my room, I really want to make it a habit. At 9:00 pm I start to play Smite game with my friend of Nuevo Leon, Mexico, and finally I go to bed at 1:00 am.  
+
+Voice recording practice --> https://voca.ro/14rlcldzhH0s  
 
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
