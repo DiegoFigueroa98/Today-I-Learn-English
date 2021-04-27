@@ -372,6 +372,7 @@ Voice recording practice --> https://voca.ro/14rlcldzhH0s
 - Editing (eh-duh-tuhng)
 - Schedule (skeh-jool)
 - Rarely (rehr-lee)
+- Quantative (kwaan-tuh-tei-tuhv)
 
 #### Unknow words or phrases
 - Be crazy about
