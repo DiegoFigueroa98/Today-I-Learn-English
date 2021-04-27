@@ -295,8 +295,40 @@ Voice recording practice --> https://voca.ro/18tk4RcvEBDy
 ![image](https://user-images.githubusercontent.com/45472379/116163963-6dbc8300-a6be-11eb-8449-941f8afb8f83.png)  
 
 Voice recording practice --> https://voca.ro/112cDCv5K6KL  
+
 ![image](https://user-images.githubusercontent.com/45472379/116164477-5af67e00-a6bf-11eb-9e2b-c778b3adc17b.png)  
 
+Voice recording practice --> https://voca.ro/16OKW4FrktIB  
+
+![image](https://user-images.githubusercontent.com/45472379/116165505-a578fa00-a6c1-11eb-8a5b-d68fc207a88a.png)  
+
+**Listen and complete the sentences:**  
+Voice recording practice --> https://voca.ro/16OKW4FrktIB  
+
+- He doesn't take a shower early in the morning
+- Do they have lunch at the cafeteria?
+- She checks her email in her phone
+- I wake up at 6:00 am
+- We go to work by bus  
+
+**Read and complete the sentences:**
+
+- I wake up at 6:00 am. At 6:30 I take a shower. At 7:00 I have breakfast.  
+- John has breakfast at 7:00 am. He go to work at 8:00 am. He drinks coffee at 10:00 am.  
+- Andrea has dinner at 7:00 pm. She watches tv and checks her email at night.  
+- We get up at 5:00 am. We drive our car to work.  
+- They sleep 8 hours every night.  
+
+**Organize the sentences:**  
+
+- **her / doesn’t / check / at / night. / She / email**  
+She doesn't check her email at night    
+- **he / a / take / in the morning? / Does / shower / early**  
+Does he take a shower early in the morning?  
+- **lunch / They / at / don’t / cafeteria. / have / the**  
+They don't have lunch at the cafeteria  
+- **work / We / to / by / bus. / go**  
+We go to work by bus    
 
 **Words to be careful with their pronunciation**
 - Foreign (faw-ruhn)
@@ -330,6 +362,7 @@ Voice recording practice --> https://voca.ro/112cDCv5K6KL
 - Depend (Dee-pend)
 - Depends (duh-pendz)
 - Gerund (jeh-ruhnd)
+- Preview (pree-vyoo)
 
 #### Unknow words or phrases
 - Be crazy about
