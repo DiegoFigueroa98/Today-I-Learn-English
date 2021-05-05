@@ -335,6 +335,9 @@ I wake up at 8:00 am, then I get up at 8:20 am. At 9:00 am I prepare breakfast, 
 
 Voice recording practice --> https://voca.ro/14rlcldzhH0s  
 
+![image](https://user-images.githubusercontent.com/45472379/117100549-9fc28a80-ad39-11eb-833e-90fec5b2a3a1.png)
+
+
 **Words to be careful with their pronunciation**  
 - Foreign (faw-ruhn)
 - Cafeteria (ka-fuh-tee-ree-uh)
