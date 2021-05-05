@@ -252,7 +252,7 @@ Hello, my name is Diego, I really love programming and listening to anime and vi
 
 He is Brayan, he is an extraordinary friend, I love to spend time with him, He always pays attention to me and we shares the same tastes.  
 
- ### Sunday 25, Apr 2021 [Grammar: Useful expressions]  
+### Sunday 25, Apr 2021 [Grammar: Useful expressions]  
 These expressions can be used only with the gerund form.
 - Love
 - Adore
@@ -335,8 +335,11 @@ I wake up at 8:00 am, then I get up at 8:20 am. At 9:00 am I prepare breakfast, 
 
 Voice recording practice --> https://voca.ro/14rlcldzhH0s  
 
+### Sunday 25, Apr 2021 [Grammar: WH Questions]  
+
 ![image](https://user-images.githubusercontent.com/45472379/117100549-9fc28a80-ad39-11eb-833e-90fec5b2a3a1.png)
 
+Voice recording practice --> https://voca.ro/11KoLAmGoK4y
 
 **Words to be careful with their pronunciation**  
 - Foreign (faw-ruhn)
